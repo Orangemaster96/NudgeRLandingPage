@@ -1,6 +1,6 @@
 # NudgeR Support
 
-For help with NudgeR, contact the support address published with the App Store or Google Play listing.
+For help with NudgeR, contact Pastrana.kevin.96@gmail.com
 
 ## Common Help Topics
 
